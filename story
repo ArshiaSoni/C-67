@@ -1,2 +1,2 @@
-The Thirsty Crow
-The main character in the story is the crow.
+The Hare and the Tortoise
+The main characters are the Hare and the Tortoise.
